@@ -36,7 +36,7 @@
 <div align="center">
 
 **Email:** shahriarsopnilraj@gmail.com
-**Phone:** +880 1318 9245
+**Phone:** +880 1318 98 9245
 
 </div>
 
